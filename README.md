@@ -1,14 +1,14 @@
 <div align="center">
-  <img src="https://64.media.tumblr.com/586282c121d32d834ed6c9739039193c/353c748945f42487-b8/s400x600/bf9133465973532947fe4cd1efa93e281d40d22b.pnj" width="1000">
+  <img src="https://64.media.tumblr.com/b01fdbee5ae9ca8efc2887758da65546/739004d019fadb58-06/s1280x1920/db9be84de5ddafad13f34de08d2b9020d9ac2205.jpg" width="1000">
   
-  <img src="https://64.media.tumblr.com/feee7c9f2da867e1e349432502cf1647/353c748945f42487-e8/s400x600/1d11ba40883ea0fa327146ecac9b543d388042b7.gifv" width="600">
+  <img src="https://64.media.tumblr.com/4a62d40e3ad6cc215f3c07dc37f468c4/1065f2282570ec7d-9c/s1280x1920/d88b31dcba6471fe54acf610ce556f12c02a2b6f.jpg" width="600">
 
 
- <img src="https://64.media.tumblr.com/f21d9f7ea552f993ab8be6dcca56bdb1/353c748945f42487-b6/s400x600/16ac0709e459ceb1018886f19c7bc67117fe10d2.gifv" width="800"/> <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
+ <img src="https://64.media.tumblr.com/00b55eb634f2f4063d9cfa5c468693bc/7029f2a5e5c129e7-d6/s400x600/01ac744cb5f6ec131f6c78d5c69c97b668e12706.gifv" width="800"/> <!-- this is a profile view counter! make sure to edit "YOUR-GITHUB-USERNAME"! -->
   ⠀<br> 
 <a href= "https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=nice+and+purple+!!!" alt="Typing SVG" /></a>
   <table>
- <img align = "right" src="https://64.media.tumblr.com/9deb649467e78b7b5ba43099c3d13433/353c748945f42487-c3/s250x400/39ddc728f8b9e9d007d0a2abe6c920d0d9fee27f.gifv" width="600"/>
+ <img align = "right" src="https://64.media.tumblr.com/c54480fb66993e668f9b74f447c8c4cd/8ae8c1f89c02aebd-e0/s100x200/595eca4fbb68c6ff88d6895c1b2fd3db17af0f09.gifv" width="200"/>
 <!-- you can edit anything below this!-->
  <img src="https://64.media.tumblr.com/179555399e5f4160afc504cf26077db0/353c748945f42487-ea/s75x75_c1/c8fa16ace80cf8488a84eee3dfe1d26675ff91e3.gifv"/> <img src="https://64.media.tumblr.com/8c79cbca1acf509d059594f1017d229e/353c748945f42487-26/s75x75_c1/0b75e223c45f215b63de271a8405eec3c6480fc0.gifv"/> <img src="https://64.media.tumblr.com/da96cacb30a38ac6256f4e7a675ca069/353c748945f42487-3e/s75x75_c1/138a0e102061d24891900e1075f6eb8266ebaab8.gifv"/>  <div/> 
 <!-- you can edit anything below this!-->
@@ -23,7 +23,7 @@ furina is nice and purple furina is nice and purple furina is nice and purple fu
    ⠀<br> 
 <a href= "https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=nice+and+purple+!!!" alt="Typing SVG" /></a>
   <table>
-<img align = "left" src="https://64.media.tumblr.com/46d3b8a324ae9e02907fac0dbc175acb/353c748945f42487-76/s400x600/f995d52e0319498766c0f3abe115133243d09b52.gifv" width="600"/>
+<img align = "left" src="https://64.media.tumblr.com/d4530b87227ca7367276e00a54ccbbb4/8ae8c1f89c02aebd-56/s100x200/781767ced04a9ca5727e818022e6a900d9f903f1.gifv" width="200"/>
 <!-- you can edit anything below this!-->
     <table>
 <img src="https://64.media.tumblr.com/8a3c5ea8f75fe558b0cb7e41fdbc6411/21914ddc7f3548dd-2a/s75x75_c1/61dae92c06b3296f58448285380820d76cdece86.pnj"/>
@@ -41,8 +41,8 @@ furina is nice and purple furina is nice and purple furina is nice and purple fu
 <a href= "https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Manufacturing+Consent&size=30&duration=1&pause=5000&color=CC85FF&center=true&vCenter=true&width=200&height=25&lines=nice+and+purple+!!!" alt="Typing SVG" /></a>
   <table>
   </div> 
-   <img src="https://64.media.tumblr.com/f21d9f7ea552f993ab8be6dcca56bdb1/353c748945f42487-b6/s400x600/16ac0709e459ceb1018886f19c7bc67117fe10d2.gifv" width="800"/>
-  <img src="https://64.media.tumblr.com/9830f8ff06b9ab2ca2c67acfb69cb517/353c748945f42487-a7/s540x810/ea0e1ecc93bf98da350787292183fff6dabe6025.gifv" width="600"/>
-    <img src="https://64.media.tumblr.com/2e311bfb3e5cc2e53a25021fab6bfd8a/353c748945f42487-84/s540x810/1d31902a43d51a7e0c2522f64fc0e2e254dc8077.pnj"width="1000"/>
+   <img src="https://64.media.tumblr.com/9ea0713a887d4998b78bc60213733fa0/7029f2a5e5c129e7-c2/s400x600/42ddb1154dc716841a1a9a394982d86dc3def347.gifv" width="800"/>
+  <img src="https://64.media.tumblr.com/4a62d40e3ad6cc215f3c07dc37f468c4/1065f2282570ec7d-9c/s1280x1920/d88b31dcba6471fe54acf610ce556f12c02a2b6f.jpg" width="600"/>
+    <img src="https://64.media.tumblr.com/dda7d33694c6c11c7233814de47a79b8/739004d019fadb58-3f/s1280x1920/fc49387c959959a20531737835aa67ef6b591462.jpg" width="1000"/>
   
 <sub>‎ ‎ ‎ ‎⋆ .‎‎  Creditz <https://www.tumblr.com/cogniris>  </a> ‎.⋆ ⟡ 
